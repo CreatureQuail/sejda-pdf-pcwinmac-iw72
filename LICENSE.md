@@ -1,4 +1,4 @@
-# 
+# Turbo Sejda PDF tools for Mac OS | Updated Sejda PDF tools for PC Windows. Featuring expense tracking and multi-language support — optimized for maximum performance on every platform.
 
 
 
